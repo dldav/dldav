@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @dldav
 - 👀 I’m interested in everything linux
-- 🌱 I’m currently learning piano
+- 🌱 I also love playing the piano
 - 💞️ I’m looking to collaborate on good things
 - 📫 How to reach me dldav@protonmail.com
 
